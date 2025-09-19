@@ -2,6 +2,8 @@
 
 **Pioneering the Next Wave of Intelligent Systems**
 
+# ETUN APPELGAYT U NEED TO REGISTA DE DOMAIN
+
 We're a dedicated AI transformation partner, helping businesses leverage machine learning and automation to achieve real-world results. We build custom AI solutions that are scalable, reliable, and designed to move the needle.
 
 ---
